@@ -66,5 +66,10 @@
 ==========================
 [![图片](https://github.com/maidaoren/test/blob/main/%E5%A6%82%E4%BD%95%E6%8E%A8%E7%BF%BB%E4%B8%80%E5%80%8B%E7%8D%A8%E8%A3%81%E6%94%BF%E9%BB%A8%E6%AD%A3%E9%AB%94%E5%AD%97.png "Shiprock")](https://github.com/maidaoren/test/blob/main/%E5%A6%82%E4%BD%95%E6%8E%A8%E7%BF%BB%E4%B8%80%E5%80%8B%E7%8D%A8%E8%A3%81%E6%94%BF%E9%BB%A8%E6%AD%A3%E9%AB%94%E5%AD%97.png)
 
-22
-![avatar](https://github.com/maidaoren/test/blob/main/%E5%A6%82%E4%BD%95%E6%8E%A8%E7%BF%BB%E4%B8%80%E5%80%8B%E7%8D%A8%E8%A3%81%E6%94%BF%E9%BB%A8%E6%AD%A3%E9%AB%94%E5%AD%97.png)
+如果推翻一個獨裁政黨英文提問，谷歌翻譯
+![avatar](https://github.com/maidaoren/test/blob/main/%E5%A6%82%E4%BD%95%E6%8E%A8%E7%BF%BB%E4%B8%80%E5%80%8B%E7%8D%A8%E8%A3%81%E8%80%85%E6%94%BF%E9%BB%A8CHATGTP%20EN%20.png)  
+
+狗頭蘿莉是現實版的白毛女  
+
+![avatar](https://github.com/maidaoren/test/blob/main/%E7%8B%97%E9%A0%AD%E8%98%BF%E8%8E%89%E6%98%AF%E7%8F%BE%E5%AF%A6%E7%89%88%E7%9A%84%E7%99%BD%E6%AF%9B%E5%A5%B3.png)  
+
