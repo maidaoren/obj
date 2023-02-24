@@ -65,3 +65,6 @@
 
 ==========================
 [![图片](https://github.com/maidaoren/test/blob/main/%E5%A6%82%E4%BD%95%E6%8E%A8%E7%BF%BB%E4%B8%80%E5%80%8B%E7%8D%A8%E8%A3%81%E6%94%BF%E9%BB%A8%E6%AD%A3%E9%AB%94%E5%AD%97.png "Shiprock")](https://github.com/maidaoren/test/blob/main/%E5%A6%82%E4%BD%95%E6%8E%A8%E7%BF%BB%E4%B8%80%E5%80%8B%E7%8D%A8%E8%A3%81%E6%94%BF%E9%BB%A8%E6%AD%A3%E9%AB%94%E5%AD%97.png)
+
+22
+![avatar](https://github.com/maidaoren/test/blob/main/%E5%A6%82%E4%BD%95%E6%8E%A8%E7%BF%BB%E4%B8%80%E5%80%8B%E7%8D%A8%E8%A3%81%E6%94%BF%E9%BB%A8%E6%AD%A3%E9%AB%94%E5%AD%97.png)
