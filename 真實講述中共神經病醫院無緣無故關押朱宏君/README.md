@@ -1,5 +1,5 @@
 
-# 文章：[中共神經病醫院紀實](https://github.com/maidaoren/obj/blob/main/%E7%9C%9F%E5%AF%A6%E8%AC%9B%E8%BF%B0%E4%B8%AD%E5%85%B1%E7%A5%9E%E7%B6%93%E7%97%85%E9%86%AB%E9%99%A2%E7%84%A1%E7%B7%A3%E7%84%A1%E6%95%85%E9%97%9C%E6%8A%BC%E6%9C%B1%E5%AE%8F%E5%90%9B/%E4%B8%AD%E5%9C%8B%E7%B2%BE%E7%A5%9E%E7%97%85%E9%86%AB%E9%99%A2%E7%9C%9F%E5%AF%A6%E7%B6%93%E6%AD%B7%EF%BC%8C%E5%8C%85%E6%8B%AC%E5%B0%8D%E8%A9%B1.md) 講述我朱宏君被中共神經病醫院關押全部經歷。包括如何入院，問話内容，所見，跟其他人對話，强迫吃藥。
+# 文章：[中共神經病醫院紀實](https://github.com/maidaoren/obj/blob/main/HainanMedicalUniversity%E2%85%A1.md) 講述我朱宏君被中共神經病醫院關押全部經歷。包括如何入院，問話内容，所見，跟其他人對話，强迫吃藥。
 
 # 海南省醫學院第二附屬醫院烏石分院出院小結 
 <img src="https://github.com/maidaoren/obj/blob/main/%E7%9C%9F%E5%AF%A6%E8%AC%9B%E8%BF%B0%E4%B8%AD%E5%85%B1%E7%A5%9E%E7%B6%93%E7%97%85%E9%86%AB%E9%99%A2%E7%84%A1%E7%B7%A3%E7%84%A1%E6%95%85%E9%97%9C%E6%8A%BC%E6%9C%B1%E5%AE%8F%E5%90%9B/%E4%B8%AD%E8%8F%AF%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9C%8B%E7%A5%9E%E7%B6%93%E7%97%85%E9%86%AB%E9%99%A2%E7%B5%A6%E7%9A%84%E8%99%9B%E5%81%87%E5%87%BA%E9%99%A2%E5%B0%8F%E7%B5%90.jpg" width="999" alt="假的出院小結"/>
