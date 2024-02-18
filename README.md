@@ -66,12 +66,12 @@
 5. 总的来说，文化大革命是一场彻底的大迫害，大滅絕行動。共產黨通过强化意识形态，打破传统文化和思想，加强对民衆的政治教育和思想控制，推广共產主义思想和價值觀，从而达到重建社会和文化的目的。
 
 ==========================
-[![图片](https://github.com/maidaoren/test/blob/main/%E5%A6%82%E4%BD%95%E6%8E%A8%E7%BF%BB%E4%B8%80%E5%80%8B%E7%8D%A8%E8%A3%81%E6%94%BF%E9%BB%A8%E6%AD%A3%E9%AB%94%E5%AD%97.png "Shiprock")](https://github.com/maidaoren/test/blob/main/%E5%A6%82%E4%BD%95%E6%8E%A8%E7%BF%BB%E4%B8%80%E5%80%8B%E7%8D%A8%E8%A3%81%E6%94%BF%E9%BB%A8%E6%AD%A3%E9%AB%94%E5%AD%97.png)
+[![图片](https://github.com/maidaoren/obj/raw/main/%E5%A6%82%E4%BD%95%E6%8E%A8%E7%BF%BB%E4%B8%80%E5%80%8B%E7%8D%A8%E8%A3%81%E6%94%BF%E9%BB%A8%E6%AD%A3%E9%AB%94%E5%AD%97.png
 
 如果推翻一個獨裁政黨英文提問，谷歌翻譯
-![英文](https://github.com/maidaoren/test/blob/main/%E5%A6%82%E4%BD%95%E6%8E%A8%E7%BF%BB%E4%B8%80%E5%80%8B%E7%8D%A8%E8%A3%81%E8%80%85%E6%94%BF%E9%BB%A8CHATGTP%20EN%20.png)  
+![英文](https://github.com/maidaoren/obj/raw/main/%E5%A6%82%E4%BD%95%E6%8E%A8%E7%BF%BB%E4%B8%80%E5%80%8B%E7%8D%A8%E8%A3%81%E8%80%85%E6%94%BF%E9%BB%A8CHATGTP%20EN%20.png)  
 
 狗頭蘿莉是現實版的白毛女  
 
-![狗頭蘿莉](https://github.com/maidaoren/test/blob/main/%E7%8B%97%E9%A0%AD%E8%98%BF%E8%8E%89%E6%98%AF%E7%8F%BE%E5%AF%A6%E7%89%88%E7%9A%84%E7%99%BD%E6%AF%9B%E5%A5%B3.png)  
+![狗頭蘿莉](https://github.com/maidaoren/obj/raw/main/%E7%8B%97%E9%A0%AD%E8%98%BF%E8%8E%89%E6%98%AF%E7%8F%BE%E5%AF%A6%E7%89%88%E7%9A%84%E7%99%BD%E6%AF%9B%E5%A5%B3.png)  
 
